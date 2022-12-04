@@ -1,3 +1,3 @@
 # first_repo
 
-## kaixo Iñaki
+## kaixo Iñaki Idoate Zazpe
